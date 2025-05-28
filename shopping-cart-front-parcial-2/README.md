@@ -12,6 +12,3 @@
 ![image](https://github.com/user-attachments/assets/fb92a2e1-e634-4518-9585-776af2e1493c)
 
 
-![Captura de pantalla (6)](https://github.com/user-attachments/assets/f8618319-6392-4e4a-b50e-005d6d561fbf)
-![Captura de pantalla (5)](https://github.com/user-attachments/assets/7bd73d73-3925-4241-8d51-dbe5e278aa73)
-![Captura de pantalla (4)](https://github.com/user-attachments/assets/7f4267f5-c02e-46eb-b570-55a8768afaf7)
