@@ -6,7 +6,8 @@
 
 🌐 Desarrolladora:
 👨‍💻 osdania martinez - 192247
-![image](https://github.com/user-attachments/assets/6c0467d6-8851-46fd-a8c3-15da039d18f8)
+![image](https://github.com/user-attachments/assets/ce7769c1-8e86-4b9a-a53c-8d45a117f98e)
+
 ![image](https://github.com/user-attachments/assets/562604ac-91ef-41c7-b71c-d8a509de7f5c)
 
 ![Captura de pantalla (6)](https://github.com/user-attachments/assets/f8618319-6392-4e4a-b50e-005d6d561fbf)
